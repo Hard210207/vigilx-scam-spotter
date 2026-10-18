@@ -1,0 +1,1 @@
+# vigilx-scam-spotter
